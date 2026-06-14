@@ -1,11 +1,11 @@
 # agrinho-Ana-
-Projeto Agrinho 202Agro forte, futuro sustentável: equilíbrio entre produção emeio ambiente”. 
+Projeto Agrinho 2026Agro forte, futuro sustentável: equilíbrio entre produção emeio ambiente”. 
 
 
 Tema: Agricultura de precisão.
 
 
-Imagens da página:https://aegro.com.br/blog/agricultura-de-precisao/, https://nutricaodesafras.com.br/o-que-e-agricultura-de-precisao,https://agriq.com.br/agricultura-de-precisao/.
+Imagens das páginas:https://aegro.com.br/blog/agricultura-de-precisao/, https://nutricaodesafras.com.br/o-que-e-agricultura-de-precisao,https://agriq.com.br/agricultura-de-precisao/.
 
 
 Fontes:https://www.google.com/url?sa=t&rct=j&q=&esrc=s&source=web&cd=&cad=rja&uact=8&ved=2ahUKEwjIzPvLnYeVAxVcr5UCHankOgsQFnoECCAQAQ&url=https%3A%2F%2Fagropecfuturo.com.br%2Fo-que-e-agricultura-de-precisao-conceito%2F&usg=AOvVaw14qDf5qRrznRxc50RP_6ax&opi=89978449
